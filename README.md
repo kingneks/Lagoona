@@ -1,2 +1,0 @@
-# Lagoona
-Lagoona Hotel
